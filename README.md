@@ -1,1 +1,1 @@
-# Reposit-rio-TripleTen-Sprint-5
+# Repositorio-TripleTen-Sprint-5
